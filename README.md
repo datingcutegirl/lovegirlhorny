@@ -1,2 +1,2 @@
 # lovegirlhorny
-klik link http://tny.im/lLw
+klik link http://🖖👑🐈🥗🐊🐱💩🥑.🍕💩.ws
